@@ -1,1 +1,1 @@
-Some of the best interesting Novels for you guys! 
+Some of the interesting Novels for you guys! 
